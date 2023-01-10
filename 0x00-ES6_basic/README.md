@@ -1,1 +1,1 @@
-amdecoruse@gmail.com
+basic project!
